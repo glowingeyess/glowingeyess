@@ -4,7 +4,7 @@
 <img width="400" height="350" alt="image" src="https://github.com/user-attachments/assets/f9159c18-25b9-463c-9e91-f262e4899d49" />⠀
   
   <p align="center">
-tyler or reginald  ,  he/him pronouns
+copia or tyler  ,  he/hxm/any (no they/them) pronouns
 
 <p align="center">
 <img width="500" height="10" alt="image" src="https://github.com/user-attachments/assets/f6e971aa-5371-4b37-8550-c2b476bc6d96" />
@@ -33,6 +33,8 @@ tyler or reginald  ,  he/him pronouns
  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/0da6e1aa06b5f1ef61dfb432e806db59/25c83cfcddf44015-af/s2048x3072/f8b35432e3f0e8b1e962ea3efa1db8fa3171837e.pnj"></a>ㅤ  Fandoms in my DNI: Dandys World, Object Shows, most Roblox Fandoms (exceptions are phighting and blocktales.. ok? you guys are cool mostly..),Mindless Self Indulgence, The MCR fandom is strange so you guys iwc if you do interact..
 
    <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/f6d9e54a9a2c7c3a6fb2ffe5b9dddeb9/25c83cfcddf44015-b7/s2048x3072/5d2a6ad42bf3c94b4864b5d1761de900aed63097.pnj"></a>ㅤ  If you evilize people with NPD fuuuuckk off, I don't want to be seen with you or be around you in general, you people suck and most of you just pick which cluster B disorders are okay or not, its a disorder. you cant choose if you have it or not so stop making it out that people with NPD are the worst people to be around.
+   
+   ㅤ  zurroundings sys / anybody affiliated with them gooooo awwwaaaayyyy
 
 </details>
 
