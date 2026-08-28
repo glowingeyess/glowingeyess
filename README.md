@@ -11,3 +11,12 @@
 
 <p align="center">
 P-DID sys, copia IRL, doubles <b>dni</b>
+
+<p></p>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31bomg4ymg2oweqwv7qetqso7uhi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=000000&bar_color_cover=false&mode=dark">
+
+    
+    
