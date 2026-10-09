@@ -1,20 +1,20 @@
-<p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=infinitebaths&label=ghouls:&color=00ff15">
+<p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=infinitebaths&label=ghouls:&color=2f1e42">
 
 <div align="center">
   
 
-<img src="https://64.media.tumblr.com/f91a57c89d8b7ba5a654fd50492f9881/e6e5313ceeb8dbb0-8c/s1280x1920/54f33d4a3677feb75393f727972ffd1be2adff5e.gifv" width="250">
+<img src="https://64.media.tumblr.com/2b606036b94638fd6b587058626f7ce2/ba49ee8f464730ad-3c/s540x810/5364c4c31daf9090f3a6803d4ee76a75296a1f03.gifv" width="250">
 
 <p></p>
 
-<b>rust</b>  or  haft ♪  he/hxm </b>
+<b>copia</b>  or  manuel ♪  he/hxm/ghoul/IV </b>
 
 <p align="center">
-P-DID sys, copia IRL, doubles <b>dni</b>
+P-DID sys, copia IRL, doubles <b>dniaa</b>
 
 <p></p>
 
-this github changes frequently due to multiple alters in the system using it 💔 we collectively go by tyler
+this github changes frequently due to multiple alters in the system using it 💔 we collectively go by ghoul or tyler
 <p></p>
 our skin/pony is usually whoevers fronting
 
