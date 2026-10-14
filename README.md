@@ -6,7 +6,7 @@
  <p></p>
  he/him⠀,⠀hx/hxm⠀,⠀ghoul/ghouls
  <p></p>
- DID sys⠀,⠀pony = front half of the time, but feel free to ask
+ DID sys⠀,⠀pony = front most of the time, but feel free to ask
  <p></p>
  C+H always if we share a fandom⠀,⠀offtab often⠀-⠀w2i
 <p></p>
